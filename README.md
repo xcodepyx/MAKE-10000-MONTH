@@ -1,4 +1,4 @@
-# MAKE $10000 /MONTH
+# MAKE 10000 dollars per MONTH
 LEARN HOW TO MAKE $10000+/MONTH RIGHT NOW! [$900+/DAY PROOF]
 
  $49,437 EARNED IN JUST THE PAST 45 DAYS!
@@ -8,8 +8,9 @@ LEARN HOW TO MAKE $10000+/MONTH RIGHT NOW! [$900+/DAY PROOF]
 
   
 ![mTn4BE2](https://github.com/user-attachments/assets/07f774c9-f9dc-42a3-9a45-ab3abcaab412)
-  
-![OG4XWcc](https://github.com/user-attachments/assets/9affaf01-869e-4970-b153-38a35479eaf5)
+ 
+![OG4XWcc](https://github.com/user-attachments/assets/4c86edf3-ff9d-44c3-b319-6ca3e2c2e674)
+
   
 
 contact : https://t.me/codepyx
